@@ -17,6 +17,6 @@
 
 #### ¡Conéctate conmigo!
 
-¡Estoy siempre interesado en colaborar en nuevos proyectos y aprender de otros desarrolladores! No dudes en contactarme a través de brandon12arias@gmail.com o https://es.fiverr.com/s/ZpgQeR.
+¡Estoy siempre interesado en colaborar en nuevos proyectos y aprender de otros desarrolladores! No dudes en contactarme a través de brandon.arias@tecsup.edu.pe o https://es.fiverr.com/s/ZpgQeR.
 
 ¡Gracias por visitar mi perfil! Espero que encuentres interesantes mis proyectos y contribuciones. 😊
